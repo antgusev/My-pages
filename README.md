@@ -1,5 +1,5 @@
 # Антон Гусев
-![](https://disk.yandex.ru/i/F37e_RkOJ__qYw)
+![](https://photos.google.com/search/_tra_/photo/AF1QipOyZ0zyJuSHh7S_hw23A7B34M6WbWqiN1-XkK1k)
 
 Обо мне:
 - возраст: 47 лет
